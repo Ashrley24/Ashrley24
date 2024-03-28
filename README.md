@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects that help me advance my knowledge in this area
 - 📫 How to reach me via email
 - 😄 Pronouns: She/Her/Hers
-- ⚡ Fun fact: I know some entry level IT Technical Support Knowledge, love video gaming, travelling, and reading.
+- ⚡ Fun fact: I have some knowledge in entry level IT Technical Support, love video gaming, travelling, and reading.
   
   
 
